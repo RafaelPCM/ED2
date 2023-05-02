@@ -1,2 +1,2 @@
 ## Link do video da explicação
-https://www.loom.com/share/9d49b12edbd7468fb2a6c1ee81587f12
+https://www.loom.com/share/924da88f45414ced9f3c4c0394df1e43
